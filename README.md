@@ -1,0 +1,1 @@
+# PATENT_KR
